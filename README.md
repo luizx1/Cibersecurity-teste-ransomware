@@ -1,1 +1,0 @@
-# Cibersecurity-teste-ransomware
